@@ -1,0 +1,2 @@
+PHS - Pioneer Hospitality Services
+Pioneer Hospitality Services proudly stands as a dynamic and fast-growing company, expertly managed with a team of skilled professionals. We excel in offering diverse corporate services in the realms of industrial, commercial, and institutional catering. Our unwavering commitment is to provide top-tier food and services, ensuring the complete satisfaction of our valued customers.
